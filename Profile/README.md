@@ -6,12 +6,12 @@
   <img src="https://i.imageupload.app/157e356365a025cd6925.png" alt="Raja Luck Register Now" width="100%" height="auto" style="margin:15px 0;" />
 </a>
 
-Tashan Win Register & Login (2026)
+# Tashan Win Register & Login (2026)
 
 Tashan Win is a trusted gaming and earning platform that lets users play fun games and earn instant cash rewards.
 In this updated 2026 guide, you’ll learn how to register, login, and claim rewards using the official invite code 314661175843.
 
-What Is Tashan Win?
+# What Is Tashan Win?
 
 Tashan Win offers multiple skill-based and casual games that reward players for participation and referrals.
 It’s available on both Android and iOS, offering fast performance, easy withdrawals, and a secure gaming experience.
@@ -30,7 +30,7 @@ Highlights
 
 🎮 Many Games: Rummy, slots, and casual skill games.
 
-How to Complete Tashan Win Register
+# How to Complete Tashan Win Register
 
 Follow these steps to get started safely:
 
@@ -48,7 +48,7 @@ Done — your Tashan Win Register process is complete.
 
 You can now proceed to login and start playing.
 
-How to Login to Tashan Win
+# How to Login to Tashan Win
 
 After completing registration, you can log in easily:
 
